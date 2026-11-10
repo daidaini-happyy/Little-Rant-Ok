@@ -2,7 +2,8 @@
 <img width="578" height="534" alt="Image" src="https://github.com/user-attachments/assets/ed67f2c3-5052-474e-b654-bf40fcb7f197" />
 </p>
 
-<p align="left">
+<p align="center">
+  <i>- " I Rlly scared abt what the fandom of TheWaltenFiles is going to be after Ep5 because of sm wierd images of Rosemary and Jack is makin me sick and I'll have to leave this fandom sm day "</i>
   <br><br>
-  <i>— "&nbsp; &nbsp;I &nbsp; &nbsp;Rlly &nbsp; &nbsp;scared &nbsp; &nbsp;abt &nbsp; &nbsp;what &nbsp; &nbsp;the &nbsp; &nbsp;fandom &nbsp; &nbsp;of &nbsp; &nbsp;TheWaltenFiles &nbsp; &nbsp;is &nbsp; &nbsp;going &nbsp; &nbsp;to &nbsp; &nbsp;be &nbsp; &nbsp;after &nbsp; &nbsp;Ep5 &nbsp; &nbsp;because &nbsp; &nbsp;of &nbsp; &nbsp;sm &nbsp; &nbsp;wierd &nbsp; &nbsp;images &nbsp; &nbsp;of &nbsp; &nbsp;Rosemary &nbsp; &nbsp;and &nbsp; &nbsp;Jack &nbsp; &nbsp;is &nbsp; &nbsp;makin &nbsp; &nbsp;me &nbsp; &nbsp;sick &nbsp; &nbsp;and &nbsp; &nbsp;I'll &nbsp; &nbsp;have &nbsp; &nbsp;to &nbsp; &nbsp;leave &nbsp; &nbsp;this &nbsp; &nbsp;fandom &nbsp; &nbsp;sm &nbsp; &nbsp;day " </i>
-  </p>
+  <i>— " What if you say "Is just Fiction!" IS WIERD And if it's not fictional it would be more worse " </i>
+</p>
